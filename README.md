@@ -1,0 +1,1 @@
+# swezmenu-privacy-policy
